@@ -2,3 +2,6 @@ Hello! I'm Vitor Schwanke, a 25-year-old recent graduate with a degree in Busine
 
 Beyond my professional life, I love to travel, train, and spend time outdoors in nature, which fuels my curiosity and creativity. This portfolio showcases my journey in the data world and highlights some of the projects I've worked on. Feel free to explore, and don't hesitate to reach out if you'd like to connect!
 
+E-Mail: vitorschwankev@gmail.com
+LinkedIn: https://www.linkedin.com/in/vitor-schwanke/
+Address: Gold Coast, Australia. 
